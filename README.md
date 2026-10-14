@@ -32,4 +32,4 @@ Software engineering roles at foreign-friendly tech companies in Japan. I'm open
 
 ## Get in touch
 
-[LinkedIn](www.linkedin.com/in/david-esparza-b304129b) · [Email](mailto:davidaec27@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/david-esparza-b304129b) · [Email](mailto:davidaec27@gmail.com)
